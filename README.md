@@ -1,1 +1,0 @@
-# DataFrequwave-By-Iman
